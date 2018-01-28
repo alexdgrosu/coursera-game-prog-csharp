@@ -1,0 +1,1 @@
+"Famous Character Vol 2 - Colored" by Vectto is licensed under CC BY 3.0.
